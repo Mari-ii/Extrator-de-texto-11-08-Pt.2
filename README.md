@@ -1,0 +1,1 @@
+# Extrator-de-texto-11-08-Pt.2
